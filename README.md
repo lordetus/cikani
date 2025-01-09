@@ -1,2 +1,2 @@
-##selhani lidstva je dokonano
+## selhani lidstva je dokonano
 -btw kupujte muj oF za 4e
